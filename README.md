@@ -13,7 +13,6 @@
 
 - ⚡ Fun fact **I was the captain of an esports team.**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
